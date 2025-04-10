@@ -1,2 +1,4 @@
 # hello-world
- new shit weeeeeeeeeeee
+ learnin how to use github
+ yep that is what im doin
+ im learnin things about github
